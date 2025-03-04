@@ -1,10 +1,10 @@
-<center> <h2>Hello :)))))))</h2>
+<p style="text-align: center;"><h2>Hello :)))))))</h2>
 <br>
 <br>
 My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking. 
 <br> I use he/him, she/her, they/them, and ey/em pronouns.
 <br> I'm Nonbinary, Sapphic, and AroAceFlux! 
-<img src="64471029_zreFhZ8TADlgytv.png"></center>
+<img src="64471029_zreFhZ8TADlgytv.png"></p>
 
 <!--
 **Mimoomsa/Mimoomsa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
