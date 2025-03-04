@@ -1,7 +1,14 @@
-<h1 align="center">Hello :)))))))</h1>
-<h3 align="center"><font size="18px">My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
-<br> I use he/him, she/her, they/them, and ey/em pronouns.
-<br>I'm Nonbinary, Sapphic, and AroAceFlux! </font></h3>
+<h1 align="center">
+  Hello :)))))))
+</h1>
+
+<h3 align="center">
+  My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
+  <br> I use he/him, she/her, they/them, and ey/em pronouns.
+  <br>I'm Nonbinary, Sapphic, and AroAceFlux!
+<br>
+  <br>I am a furry artist! I don't often chat much but you're free to engage in convo!
+  <br>My favorite color is pink and I'm honest to god obsessed with it.</h3>
 
 <p align="center">
 <a href="https://toyhou.se/21355465.my-tiny-pride-flags">
