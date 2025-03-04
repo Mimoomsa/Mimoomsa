@@ -2,9 +2,9 @@
 
 <br>
 
-<h4 align="center"><font size="18px">My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
+<h3 align="center"><font size="18px">My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
 <br> I use he/him, she/her, they/them, and ey/em pronouns.
-<br>I'm Nonbinary, Sapphic, and AroAceFlux! </font></h4>
+<br>I'm Nonbinary, Sapphic, and AroAceFlux! </font></h3>
 
 <p align="center">
 <a href="https://toyhou.se/21355465.my-tiny-pride-flags">
