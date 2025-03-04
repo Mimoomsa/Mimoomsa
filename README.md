@@ -6,7 +6,7 @@
 <p align="center">
 <a href="https://toyhou.se/21355465.my-tiny-pride-flags">
 <img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag"> 
-<img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
+<img src="64471022_eTD5ib8DXxtw4ay.png" title="Sapphic Flag">
 <img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
 <img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
 <img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
