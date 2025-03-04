@@ -17,7 +17,17 @@
 <img src="69682775_bLaLmFHBlwa4npz.png" title="Asexual Flux Flag">
 </a></p>
   🌸 I am a furry artist! I don't often chat much but you're free to engage in convo! 🌸
-  <br>🌸 My favorite color is pink and I'm honest to god obsessed with it. 🌸</h3>
+  <br>🌸 My favorite color is pink and I'm honest to god obsessed with it. 🌸
+  <br>🌸 Main fandoms: Cookie Run & Team Fortress 2</h3>
+
+<br>
+<p align="center">Small boundaries!!
+<br>I am usually in the Cookie Run area on ponytown, please don't:
+<br>↳ Ship my Dark Cacao with Affogato
+<br>↳ Attempt a roleplay
+<br>↳ Cover me w/o asking
+<br>
+<br>Taking inspo is fine! Shipping in general is fine!</p>
 
 <!--
 **Mimoomsa/Mimoomsa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
