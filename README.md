@@ -4,7 +4,7 @@
 My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking. 
 <br> I use he/him, she/her, they/them, and ey/em pronouns.
 <br> I'm Nonbinary, Sapphic, and AroAceFlux! 
-<img src="https://f2.toyhou.se/file/f2-toyhou-se/images/64471029_zreFhZ8TADlgytv.png?1682969202"></center>
+![Non-binary Flag](64471029_zreFhZ8TADlgytv.png)</center>
 
 <!--
 **Mimoomsa/Mimoomsa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
