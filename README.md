@@ -6,11 +6,11 @@
 <p align="center">
 <a href="https://toyhou.se/21355465.my-tiny-pride-flags">
 <img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag"> 
-<img src="64471029_zreFhZ8TADlgytv.png">
-<img src="64471029_zreFhZ8TADlgytv.png">
-<img src="64471029_zreFhZ8TADlgytv.png">
-<img src="64471029_zreFhZ8TADlgytv.png">
-<img src="64471029_zreFhZ8TADlgytv.png"></a></p>
+<img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
+<img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
+<img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
+<img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag">
+</a></p>
 
 <!--
 **Mimoomsa/Mimoomsa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
