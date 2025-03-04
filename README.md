@@ -1,8 +1,8 @@
 <p align="center"><h3 align="center">Hello :)))))))</h3>
 <br>
-<p align="center">My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
+<p align="center"><font size="14px">My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
 <br> I use he/him, she/her, they/them, and ey/em pronouns.
-<br>I'm Nonbinary, Sapphic, and AroAceFlux! </p>
+<br>I'm Nonbinary, Sapphic, and AroAceFlux! </font></p>
 <p align="center">
 <a href="https://toyhou.se/21355465.my-tiny-pride-flags">
 <img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag"> 
