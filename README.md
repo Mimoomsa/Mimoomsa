@@ -1,4 +1,4 @@
-<p style="text-align: center;"><h2>Hello :)))))))</h2>
+<p align: "center"><h2>Hello :)))))))</h2>
 <br>
 <br>
 My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking. 
