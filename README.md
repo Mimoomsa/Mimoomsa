@@ -5,7 +5,7 @@
 <br>I'm Nonbinary, Sapphic, and AroAceFlux! </p>
 <p align="center">
 <a href="https://toyhou.se/21355465.my-tiny-pride-flags">
-<img src="64471029_zreFhZ8TADlgytv.png"> 
+<img src="64471029_zreFhZ8TADlgytv.png" title="Non-binary Flag"> 
 <img src="64471029_zreFhZ8TADlgytv.png">
 <img src="64471029_zreFhZ8TADlgytv.png">
 <img src="64471029_zreFhZ8TADlgytv.png">
