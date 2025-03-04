@@ -1,7 +1,4 @@
 <h1 align="center">Hello :)))))))</h1>
-
-<br>
-
 <h3 align="center"><font size="18px">My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
 <br> I use he/him, she/her, they/them, and ey/em pronouns.
 <br>I'm Nonbinary, Sapphic, and AroAceFlux! </font></h3>
