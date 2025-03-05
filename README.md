@@ -15,7 +15,7 @@
   </a></p>
   🌸 I am a furry artist! I don't often chat much but you're free to engage in convo! 🌸
   <br>🌸 My favorite color is pink and I'm honest to god obsessed with it. 🌸
-  <br>🌸 Main fandoms: Cookie Run & Team Fortress 2 🌸</h3>
+  <br>🌸 Main fandoms: Cookie Run, TF2, & Dungeon Meshi 🌸</h3>
 
 <br>
 <p align="center">Small boundaries!!
