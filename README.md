@@ -27,9 +27,6 @@
 <br>Taking inspo is fine! Shipping in general is fine!</p>
 <h3 align="center">⊹₊ ════════════════════ ⋆༺𓆩❀𓆪༻⋆ ════════════════════ ₊⊹</h3>
 
-
-<img src="image_2025-03-06_021330103.png">
-
 <!--
 **Mimoomsa/Mimoomsa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
