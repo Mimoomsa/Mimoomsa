@@ -24,7 +24,8 @@
 <br>↳ Attempt a roleplay
 <br>↳ Cover me w/o asking
 <br>
-<br>Taking inspo is fine! Shipping in general is fine!</p>
+<br>Taking inspo is fine! Shipping in general is fine!
+<br>I WILL block you if you are a minor on 18+. I block freely.</p>
 <h3 align="center">⊹₊ ════════════════════ ⋆༺𓆩❀𓆪༻⋆ ════════════════════ ₊⊹</h3>
 
 <!--
