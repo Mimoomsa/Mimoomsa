@@ -26,6 +26,7 @@
 <br>
 <br>Taking inspo is fine! Shipping in general is fine!
 <br>I WILL block you if you are a minor on 18+, no exception. I block freely.
+<br>I will block Jimmy (Mouthwashing) ponies on sight.
 <br>
 <br>If I'm asleep in game I am AFK!</p>
 <h3 align="center">⊹₊ ════════════════════ ⋆༺𓆩❀𓆪༻⋆ ════════════════════ ₊⊹</h3>
