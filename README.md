@@ -19,8 +19,8 @@
 
 <br>
 <p align="center">Small boundaries!!
-<br>I am usually in the Cookie Run area on ponytown, please don't:
-<br>↳ Ship my Dark Cacao with Affogato
+<br>Rest in peace cookie run area you will be missed
+<br>Don't:
 <br>↳ Attempt a roleplay
 <br>↳ Cover me w/o asking
 <br>
