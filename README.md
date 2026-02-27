@@ -2,7 +2,7 @@
 <h3 align="center">
   My name's Cody, or Moom! Whichever you please. You can call me that name anytime without asking.
   <br> ↳  🌸 :: I use he/him, she/her, they/them, and ey/em pronouns.
-  <br> ↳  🌸 :: I'm Nonbinary, Sapphic, and AroAceFlux!
+  <br> ↳  🌸 :: I'm Nonbinary, Sapphic, and AroAceflux!
   <br>
   <br>
   <p align="center">
@@ -15,7 +15,7 @@
   </a></p>
   🌸 I am a furry artist! I don't often chat much but you're free to engage in convo! 🌸
   <br>🌸 My favorite color is pink and I'm honest to god obsessed with it. 🌸
-  <br>🌸 Main fandoms: Cookie Run, TF2, BG3, & Dungeon Meshi 🌸</h3>
+  <br>🌸 Main fandoms: Cookie Run, TF2, BG3, JJBA, & Dungeon Meshi 🌸</h3>
 
 <br>
 <p align="center">Small boundaries!!
@@ -28,7 +28,7 @@
 <br>I WILL block you if you are a minor on 18+, no exception. I block freely.
 <br>I will block Jimmy (Mouthwashing) ponies on sight.
 <br>
-<br>If I'm asleep in game I am AFK!</p>
+<br>If I'm asleep in game, I am AFK!</p>
 <h3 align="center">⊹₊ ════════════════════ ⋆༺𓆩❀𓆪༻⋆ ════════════════════ ₊⊹</h3>
 
 <!--
